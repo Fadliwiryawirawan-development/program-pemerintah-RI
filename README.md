@@ -3,7 +3,7 @@
 https://dukcapil.kemendagri.com/
 https://media.kemenkeu.go.id
 https://www.kemkes.go.id
-
+# https://workspace.google.com/intl/en-id/gmail/"."https://icloud.com/mail"
 Setiap negara wajib mengikuti kewajiban atas kinerja popularitas kependudukan masa yang berlaku , parawisata bukan dipersulit untuk menempati tataruang tempat tinggal kewarnegraaan di indonesia namu ikuti seruan mengikuti kebijakan peraturan negara dan bermasayarakat selayaknya asal negara berkulit identik sao matang 
 Kemerdekaan berpendapat, kemerdekaan berekspresi, dan kemerdekaan pers adalah hak asasi manusia yang dilindungi Pancasila, Undang-Undang Dasar 1945, dan Deklarasi Universal Hak Asasi Manusia PBB. Keberadaan media siber di Indonesia juga merupakan bagian dari kemerdekaan berpendapat, kemerdekaan berekspresi, dan kemerdekaan pers.
 
