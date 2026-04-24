@@ -3,3 +3,5 @@
 https://dukcapil.kemendagri.com/
 https://media.kemenkeu.go.id
 https://www.kemkes.go.id
+
+Setiap negara wajib mengikuti kewajiban atas kinerja popularitas kependudukan masa yang berlaku , parawisata bukan dipersulit untuk menempati tataruang tempat tinggal kewarnegraaan di indonesia namu ikuti seruan mengikuti kebijakan peraturan negara dan bermasayarakat selayaknya asal negara berkulit identik sao matang 
