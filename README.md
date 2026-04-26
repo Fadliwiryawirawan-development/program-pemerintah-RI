@@ -1,5 +1,42 @@
+
+
+
+
+
+# languange indonesian spokes public " 
+
+# indonesia sering berjalan waktu pernah menandatangani pihak canada konstitusional prakerja dibidang technologi dalam waktu bersamaan kami tegaskan langkah perusahaan adalah pelindungan umum dan privasi para owner dan pemilik apalagi pekerja lepas atau dibawah tekanan pihak perusahaan , tergolong sikap presiden indonesia , monoton tdak semua pihak dikelola oleh asn pihak nasional , pihak nasional adalah penghubung diplomasi berjabat tangan atas undangan para direksi yang menciptakan poly geopolemik economy yang semakin berpengaruh kepada global , 
+
+
+# kami landaskan pengurusan Prabowo subianto pihak presidensial , di tahan seluruh negara sikap arogansi kemiliteran sejarah tidak absolut dalam kebijakan nasionalisme , 
+
+
+# independen ini adalah pengurusan bahwasanya prabowo subianto kurang tegas menyikapi persoalan kepmimpinan atas tugas mandat elemen masyarakat 
+
+# tindak sidak terpidana korupsi digital ocean dan monetasi operbale 
+hak cipta 
+
+
+# tajuk konteks do not sell my data and @copyright
+
+# sebagaimana UU cipta , RUU , Ideos demos kratos , dan simboliis pancasila . 
+
+
+
+# mr.prabowo subianto lebih menanamkan sikap rohani agamis mayoritas islam , menyikapi menghindari fitnah nasional , menjaga keutuhan dari penyuaraan perintah palsu dan sikap antusias , antisipasi terhadap provokasi berorganisasi serta membawa nama aparat pemerintah polri , nesehat ijtima ulama hingga milter tni , sikap ini sudah terlegalisasi oleh pihakpenyeruan kebijakan freedom on muslim /muslimah islam dalam perbincangan unhcr unicef hingga kedokteran faskes WHO 
+
+
+# atas direktorat data dokumen interpolice 
+
+
+
+
+
+
+# Fadliwiryawirawan S.Kom M.S.I public sector
+
 # program-pemerintah-RI
-1 0001 0010 0010 0111 1111 1010 0011 jumlah populasi indonesian berdasarkan perhitungan programmer dunia Populasi Indonesia saat ini adalah 287.473.571 dengan tingkat pertumbuhan tahunan sebesar 0,741%. Indonesia memiliki populasi 3,47% dari populasi dunia. Papua New Guine...
+#  1 0001 0010 0010 0111 1111 1010 0011 jumlah populasi indonesian berdasarkan perhitungan programmer dunia Populasi Indonesia saat ini adalah 287.473.571 dengan tingkat pertumbuhan tahunan sebesar 0,741%. Indonesia memiliki populasi 3,47% dari populasi dunia. Papua New Guine...
 https://dukcapil.kemendagri.com/
 https://media.kemenkeu.go.id
 https://www.kemkes.go.id
